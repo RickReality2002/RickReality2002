@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Rikki!
+- I'm 16 years old currently. I'm an INTJ 5w4. (MBTI & Enneagram)
+- I’m interested in software development, game development, and Minecraft plugin development!
+- I’m currently learning Java, C#, and Python. (In order of priority)
+- I’m looking to collaborate on studying,
+- How to reach me Discord: RikkiReality2002#0286
